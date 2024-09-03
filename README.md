@@ -1,6 +1,6 @@
 # Vinyl Vault
 
-#### Video Demo: <URL HERE>
+#### Video Demo: (https://youtu.be/Lqrb7FU9STo)
 
 #### Description:
 
